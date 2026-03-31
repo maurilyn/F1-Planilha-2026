@@ -1,6 +1,6 @@
 # 🏁 Planilha Fórmula 1 – Temporada 2026
 
-***Att: GP da China***
+***Att: GP do Japão***
 
 Esta planilha contém informações e recursos relacionados à temporada 2026 da Fórmula 1. Entre:
 

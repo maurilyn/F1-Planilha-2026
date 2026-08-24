@@ -1,6 +1,6 @@
 # 🏁 Planilha Fórmula 1 – Temporada 2026
 
-***Att: GP da Hungria***
+***Att: GP da Holanda***
 
 Esta planilha contém informações e recursos relacionados à temporada 2026 da Fórmula 1. Entre:
 

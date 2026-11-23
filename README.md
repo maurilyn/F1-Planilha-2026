@@ -1,6 +1,6 @@
 # 🏁 Planilha Fórmula 1 – Temporada 2026
 
-***Att: GP do México***
+***Att: GP de Las Vegas***
 
 Esta planilha contém informações e recursos relacionados à temporada 2026 da Fórmula 1. Entre:
 
